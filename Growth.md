@@ -21,3 +21,7 @@
 **BIAS**
 
 - ![2022-11-19 (5)](https://user-images.githubusercontent.com/108303424/202880053-ce7fa658-d551-4a0c-8dc9-9e44511f3d92.png)
+
+## Things I want to know more about
+
+- Everything
